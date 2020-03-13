@@ -6,7 +6,7 @@ module.exports = {
     themeConfig: {
         sidebar: [
           '/',
-          ['Dubai_Fountain','杜拜水舞 3/15']
+          ['Dubai_Fountain','杜拜水舞']
         ],
         nav: [
           { text: 'Home', link: '/' },
