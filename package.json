@@ -10,7 +10,7 @@
   "keywords": [],
   "author": "",
   "license": "ISC",
-  "devDependencies": {
+  "dependencies": {
     "@vuepress/plugin-google-analytics": "^1.3.1"
   }
 }
