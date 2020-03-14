@@ -9,7 +9,12 @@ module.exports = {
           ['Dubai_Fountain','杜拜水舞']
         ],
         nav: [
-          { text: 'Home', link: '/' },
+          { text: '首頁', link: '/' },
+          { text: '其他電子書', items: [
+            { text: '我環遊世界的故事和勵志書', link: 'https://shanbook.carissalove.com/' },
+            { text: '英國是個高度尊重禮遇身心障礙人士的先進國家', link: 'https://shanuk.carissalove.com/' }  
+          ]
+          }          
         ]
       },
     plugins: [
