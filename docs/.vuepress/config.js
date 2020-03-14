@@ -1,11 +1,12 @@
 module.exports = {
-    title: '善善的第三本書：杜拜是瞥見阿拉伯世界的一扇窗',
+    title: '杜拜是瞥見阿拉伯世界的一扇窗',
     description: '',
     base: '/',
     repo: 'https://github.com/ccjeng/shanbook-uae',
     themeConfig: {
+        sidebarDepth: 0,
         sidebar: [
-          '/',
+          ['/','前言'],
           ['Dubai_Fountain','杜拜水舞']
         ],
         nav: [
@@ -15,7 +16,8 @@ module.exports = {
             { text: '英國是個高度尊重禮遇身心障礙人士的先進國家', link: 'https://shanuk.carissalove.com/' }  
           ]
           }          
-        ]
+        ],
+        lastUpdated: '最後更新時間'
       },
     plugins: [
         [
