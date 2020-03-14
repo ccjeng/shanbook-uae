@@ -4,9 +4,12 @@
 
 ![](https://live.staticflickr.com/65535/49654649193_7593e2fbf9.jpg)
 
+![](https://live.staticflickr.com/65535/49657948573_bdfa0c1260.jpg)
+
 杜拜湖夜晚的景致非常壯觀迷人，因為**杜拜湖實際上是中東和世界上最大的人工音樂噴泉湖**。杜拜湖有Emaar伊瑪爾標示的摩天大樓。Emaar伊瑪爾是總部設在杜拜的伊瑪爾地產（Emaar Properties），為全球第二大地產投資商，自1997年成立以來，致力於塑造杜拜標誌性景觀，如世界第一高樓哈里發塔。
 
 ![](https://live.staticflickr.com/65535/49655467472_c54087f418.jpg)
+![](https://live.staticflickr.com/65535/49655467412_d8ec09e8c8.jpg)
 
 **杜拜水舞長達275公尺，噴泉噴嘴的排放方式較為特別，分布於2條不同長度和弧度的弧線，和5個不同大小的圓圈上。杜拜噴泉所用的噴嘴統一由WET Design製造**，共包括了：
 
@@ -17,7 +20,11 @@
 5. Extreme Shooters：先噴出水柱，隨後發出一下嘭聲。
 6. 霧化噴泉：噴出如水霧的噴泉。
 
-![](https://live.staticflickr.com/65535/49655467412_d8ec09e8c8.jpg)
+![](https://live.staticflickr.com/65535/49657948368_4a8deeedae.jpg)
+
+![](https://live.staticflickr.com/65535/49658489781_7b33152cc8.jpg)
+
+![](https://live.staticflickr.com/65535/49658489836_99026e0c09.jpg)
 
 **杜拜水舞所用的燈光主要為白色水燈，共使用了25台彩色投射機，5個一組安裝在5個圓形裡。**
 
@@ -25,15 +32,28 @@
 
 ![](https://live.staticflickr.com/65535/49655467262_0d42b31607.jpg)
 
+![](https://live.staticflickr.com/65535/49658764757_c09742b10d.jpg)
+
+![](https://live.staticflickr.com/65535/49658490041_8a09c4594c.jpg)
+
 **杜拜水舞現有的表演曲目有**阿拉伯歌手Hussain Al Jassmi的**阿拉伯歌曲**Bassbor Al Fourgakom，曾獲葛萊美獎的**英文歌**Baba Yetu，**印度歌曲**Shik Shak Shok，**義大利歌劇流行音樂Time  To Say Goodbye**，杜拜噴泉主打曲目Sama Dubai，純樂曲Waves，印度歌 Dhoom Thana，阿拉伯純樂曲Ishtar Poetry，流行英文電影配樂歌曲I Will Always Love You，2013年年初開始加入曲目的中文歌曲，張學友的吻別，兒童動畫電影配樂歌曲The Prayer，**首支入選的兒歌Baby Shark**，首支入選的**韓國音樂Power**，杜拜噴泉表演時間最長的阿拉伯歌Twlht Ana Lsotak，黎巴嫩歌曲Ab Bali Habibi，著名法語歌玫瑰人生La Vie en Rose，俄語歌Lyubov' Pohoyoaya Na Son等，**共包含了數十首多國和跨文化語言的豐富精彩水舞表演曲目，經典表演曲目外，並持續新增中**。
 
 ![](https://live.staticflickr.com/65535/49655187881_8c84ae3a8e.jpg)
 
+![](https://live.staticflickr.com/65535/49658764697_dc1f81db62.jpg)
+![](https://live.staticflickr.com/65535/49657948248_3966c45a93.jpg)
+
 **杜拜水舞**所在的杜拜湖的湖面上，**在夜間有遊船可搭，可以環繞這個佔地面積廣大的人工噴泉湖，一邊欣賞每半個小時一場的水舞表演。在一早的時候，我們從杜拜皇宮飯店（Palace Downtown, Dubai）的水舞房，就看到有清潔人員乘船帶著清潔工具在清理杜拜湖人工湖面，用心仔細地維護淡藍色人工湖面的清澈水質，所以這個人工噴泉湖，即使每天吸引大批人潮前來觀賞水舞，仍是清澈見底，絲毫看不到垃圾。**
 
 ![](https://live.staticflickr.com/65535/49655467112_7c74f8c085.jpg)
+![](https://live.staticflickr.com/65535/49658764697_dc1f81db62.jpg)
+
+![](https://live.staticflickr.com/65535/49657948248_3966c45a93.jpg)
+![](https://live.staticflickr.com/65535/49657948748_b2c30c1d6f.jpg)
 
 **杜拜的物價整體偏高，所以去杜拜一週的花費，相當於我們2019年七八月在倫敦待上16天的旅費**。而且雖然搭乘阿聯酋航空（Emirates Airline）A380客機（是空中巴士公司研發的雙層4引擎巨型客機），去程因逆風向，總飛行時間9小時35分鐘（回程杜拜飛回台灣時，因順風向，總飛行時間為8小時15分鐘），但是**往返杜拜的機票花費，還多於飛行時間約13小時，飛行距離更遠的台北往返倫敦的機票花費。所以，在杜拜這樣的物價偏高的旅遊點，其實杜拜水舞相對是完全免費觀賞，壯觀而精彩絕倫的最佳杜拜景點，絕對是百看不厭又令人永生難忘的世界之最體驗之一！**
+
+![](https://live.staticflickr.com/65535/49658764757_c09742b10d.jpg)
 
 ![](https://live.staticflickr.com/65535/49655187686_bae5ac0c80.jpg)
 
@@ -44,3 +64,4 @@
 ![](https://live.staticflickr.com/65535/49657864363_1fdcceb85f.jpg)
 
 ![](https://live.staticflickr.com/65535/49658680877_33b480e251.jpg)
+
