@@ -3,6 +3,9 @@ module.exports = {
     description: '善善的第三本書：杜拜是瞥見阿拉伯世界的一扇窗',
     base: '/',
     repo: 'https://github.com/ccjeng/shanbook-uae',
+    head: [
+      ['link', { rel: 'icon', href: '/favicon.ico' }]
+    ],
     themeConfig: {
         sidebarDepth: 0,
         sidebar: [
