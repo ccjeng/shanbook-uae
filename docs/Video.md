@@ -15,3 +15,14 @@
 <iframe width="560" height="315" src="https://www.youtube.com/embed/LDXwBOmM-wQ" frameborder="0" allow="accelerometer; autoplay; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
 
 [善善水舞YouTube播放清單](https://www.youtube.com/playlist?list=PLzdWI9-syhOmapO469SSoUYvFZPpH05zG)
+
+### 杜拜購物節25週年歌曲（Dubai is another planet）
+<iframe width="560" height="315" src="https://www.youtube.com/embed/l67RFMk2F3s" frameborder="0" allow="accelerometer; autoplay; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
+
+<iframe width="560" height="315" src="https://www.youtube.com/embed/tKdRGsRAskI" frameborder="0" allow="accelerometer; autoplay; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
+
+### UAE國歌
+<iframe width="560" height="315" src="https://www.youtube.com/embed/A6YNljzz-M4" frameborder="0" allow="accelerometer; autoplay; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
+
+<iframe width="560" height="315" src="https://www.youtube.com/embed/A59le56aluA" frameborder="0" allow="accelerometer; autoplay; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
+
