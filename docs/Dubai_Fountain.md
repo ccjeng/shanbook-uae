@@ -36,7 +36,7 @@
 
 ![](https://live.staticflickr.com/65535/49658490041_8a09c4594c.jpg)
 
-**杜拜水舞現有的表演曲目有**阿拉伯歌手Hussain Al Jassmi的**阿拉伯歌曲**Bassbor Al Fourgakom，曾獲葛萊美獎的**英文歌**Baba Yetu，**印度歌曲**[Shik Shak Shok](/Video.html#shik-shak-shok)，**義大利歌劇流行音樂[Time  To Say Goodbye](/Video.html#time-to-say-goodbye)**，杜拜噴泉主打曲目[Sama Dubai](/Video.html#sama-dubai)，純樂曲Waves，印度歌 Dhoom Thana，阿拉伯純樂曲Ishtar Poetry，流行英文電影配樂歌曲I Will Always Love You，2013年年初開始加入曲目的中文歌曲，張學友的吻別，兒童動畫電影配樂歌曲The Prayer，**首支入選的兒歌[Baby Shark](/Video.html#baby-shark)**，首支入選的**韓國音樂Power**，杜拜噴泉表演時間最長的阿拉伯歌Twlht Ana Lsotak，黎巴嫩歌曲Ab Bali Habibi，著名法語歌玫瑰人生La Vie en Rose，俄語歌Lyubov' Pohoyoaya Na Son等，**共包含了數十首多國和跨文化語言的豐富精彩水舞表演曲目，經典表演曲目外，並持續新增中**。
+**杜拜水舞現有的表演曲目有**阿拉伯歌手Hussain Al Jassmi的**阿拉伯歌曲**Bassbor Al Fourgakom，曾獲葛萊美獎的**英文歌**Baba Yetu，**印度歌曲**[Shik Shak Shok](/Video.html#%E5%8D%B0%E5%BA%A6%E6%AD%8C-shik-shak-shok)，**義大利歌劇流行音樂[Time  To Say Goodbye](/Video.html#%E8%8B%B1%E6%96%87%E6%AD%8C-time-to-say-goodbye)**，杜拜噴泉主打曲目[Sama Dubai](/Video.html#%E9%98%BF%E6%8B%89%E4%BC%AF%E6%AD%8C%E6%9B%B2-sama-dubai)，純樂曲Waves，印度歌 Dhoom Thana，阿拉伯純樂曲Ishtar Poetry，流行英文電影配樂歌曲I Will Always Love You，2013年年初開始加入曲目的中文歌曲，張學友的吻別，兒童動畫電影配樂歌曲The Prayer，**首支入選的兒歌[Baby Shark](/Video.html#%E5%85%92%E6%AD%8C-baby-shark)**，首支入選的**韓國音樂Power**，杜拜噴泉表演時間最長的阿拉伯歌Twlht Ana Lsotak，黎巴嫩歌曲Ab Bali Habibi，著名法語歌玫瑰人生La Vie en Rose，俄語歌Lyubov' Pohoyoaya Na Son等，**共包含了數十首多國和跨文化語言的豐富精彩水舞表演曲目，經典表演曲目外，並持續新增中**。
 
 ![](https://live.staticflickr.com/65535/49655187881_8c84ae3a8e.jpg)
 
