@@ -11,8 +11,8 @@ module.exports = {
         sidebar: [
           ['/','前言'],
           ['index2','前言二'],
-          ['dubai_fountain','杜拜水舞'],
-          ['video','影片區'],
+          ['Dubai_Fountain','杜拜水舞'],
+          ['Video','影片區'],
         ],
         nav: [
           { text: '首頁', link: '/' },
