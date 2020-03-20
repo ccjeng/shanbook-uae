@@ -12,6 +12,7 @@ module.exports = {
           ['/','前言'],
           ['index2','前言二'],
           ['dubai_fountain','杜拜水舞'],
+          ['dubai_mall','杜拜購物中心'],          
           ['video','影片區'],
         ],
         nav: [
