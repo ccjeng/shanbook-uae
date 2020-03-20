@@ -61,7 +61,7 @@
 
 [杜拜水舞影片](/Video.html#%E6%9D%9C%E6%8B%9C%E6%B0%B4%E8%88%9E)
 
-<iframe src="https://onedrive.live.com/embed?cid=0169DEE371537340&resid=169DEE371537340%21197&authkey=AKCRqxXuAs2YAPI" width="320" height="180" frameborder="0" scrolling="no" allowfullscreen></iframe>
+<iframe src="https://drive.google.com/file/d/1JaNbz0_E-a2RvCHFzp6MpQ1Nv8hCR8Dh/preview" width="100%" height="480"></iframe>
 
 ![](https://live.staticflickr.com/65535/49657864443_8defe897ec.jpg)
 
