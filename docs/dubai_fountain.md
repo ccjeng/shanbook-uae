@@ -61,6 +61,10 @@
 
 [杜拜水舞影片](/Video.html#%E6%9D%9C%E6%8B%9C%E6%B0%B4%E8%88%9E)
 
+
+<iframe src="https://drive.google.com/file/d/1JaNbz0_E-a2RvCHFzp6MpQ1Nv8hCR8Dh/preview" width="640" height="480"></iframe>
+
+
 ![](https://live.staticflickr.com/65535/49657864443_8defe897ec.jpg)
 
 ![](https://live.staticflickr.com/65535/49657864363_1fdcceb85f.jpg)
