@@ -18,11 +18,11 @@
 
 **杜拜購物中心的佔地之廣，我們親身體驗到，當我們有一天包車要從杜拜(Dubai)前往另一大城市阿布達比（Abu Dhabi）時，車子開了近十分鐘之久，已經走了好一段路，我們仍在杜拜購物中心外的某一面，可見得它的總佔地面積之廣大。** 當然愛好世界名牌和精品的人在裡面怎麼也逛不完，所有國際精品及精品童裝都會在這裡設旗艦店，如寶格麗（Bulgari）、卡地亞（Cartier）、蔻依法國時裝（Chloé）、代表性英國經典格紋品牌Burberry、國際精品亞曼尼（Armani）、杜嘉班納（Dolce & Gabbana）、芬迪（Fendi）、古馳（Gucci）、瑞典時裝公司海恩斯莫里斯服飾H&M）瑞典語Hennes & Mauritz AB）、Polo Ralph Lauren、法國時裝品牌迪奧Dior）法語:Christian Dior）、瑞士奢華腕錶勞力士Rolex等。
 
-![](https://live.staticflickr.com/65535/49680026787_46cd35166f.jpg)
-
-![](https://live.staticflickr.com/65535/49680026732_c0d6cb64d5.jpg)
-
 ![](https://live.staticflickr.com/65535/49679737146_ce1c027acf.jpg)
+
+![](https://live.staticflickr.com/65535/49680026327_b62912238c.jpg)
+
+![](https://live.staticflickr.com/65535/49679736936_66d7ffb98e.jpg)
 
 **但我們家不是喜愛逛街或名牌的人，家裡只有我一個人最愛指認知名品牌，不過杜拜購物中心的精品童裝櫥窗，服飾細節設計之華美出眾，的確是視覺上的饗宴。當地的中東傳統服飾也十分具有阿拉伯服飾文化上的特色，多推出長罩袍類，具有當地特色的傳統服飾。**
 
@@ -38,7 +38,7 @@
 
 ![](https://live.staticflickr.com/65535/49680026652_e6ce18fd6f.jpg)
 
-![](https://live.staticflickr.com/65535/49679737036_d9ea6cdf15.jpg)
+![](https://live.staticflickr.com/65535/49679736676_76a5d822b9.jpg)
 
 ![](https://live.staticflickr.com/65535/49679206018_317f09b90e.jpg)
 
@@ -46,9 +46,9 @@
 
 ![](https://live.staticflickr.com/65535/49679736981_558a3eee90.jpg)
 
-![](https://live.staticflickr.com/65535/49679736936_66d7ffb98e.jpg)
+![](https://live.staticflickr.com/65535/49679205533_4a0c80909f.jpg)
 
-![](https://live.staticflickr.com/65535/49680026487_5a0bd58e3f.jpg)
+![](https://live.staticflickr.com/65535/49679736576_b7c5d3fef2.jpg)
 
 杜拜購物中心裡面，匯聚了超過200間各國料理美食餐廳，並設有不只一個美食街區，我們曾在這裡外帶墨西哥料理，享用海鮮拼盤和大蝦炒麵。**我們2020年這次杜拜自助旅行，造訪不只一次的餐廳，是可以欣賞杜拜水舞和料理多樣化又份量十足的TGI Friday，店名招牌還有阿拉伯文版。**
 
@@ -64,17 +64,17 @@
 
 ![](https://live.staticflickr.com/65535/49679205618_273fd6177e.jpg)
 
-![](https://live.staticflickr.com/65535/49679205563_2770107062.jpg)
+![](https://live.staticflickr.com/65535/49680026787_46cd35166f.jpg)
 
-![](https://live.staticflickr.com/65535/49679736576_b7c5d3fef2.jpg)
+![](https://live.staticflickr.com/65535/49680026732_c0d6cb64d5.jpg)
+
+![](https://live.staticflickr.com/65535/49679205563_2770107062.jpg)
 
 **在杜拜購物中心中還有大型超市，如英國連鎖高檔超市Waitrose的杜拜分店，從世界各地進口食物和蔬果類。** 另外有恐龍化石特展區，**大型糖果名店Candilicious**，和**知名美國優格連鎖店Yogurtland的杜拜分店**。Yogurtland的最大特色就是：可以自己操作優格機選擇口味與份量多寡，還有數十種配料可以自由選擇，以秤重決定價格。
 
-![](https://live.staticflickr.com/65535/49679205533_4a0c80909f.jpg)
+![](https://live.staticflickr.com/65535/49679737036_d9ea6cdf15.jpg)
 
-![](https://live.staticflickr.com/65535/49680026327_b62912238c.jpg)
-
-![](https://live.staticflickr.com/65535/49679736676_76a5d822b9.jpg)
+![](https://live.staticflickr.com/65535/49680026487_5a0bd58e3f.jpg)
 
 **總而言之，如果到杜拜去，絕對不能錯過好吃，好逛，能看到三層樓高的高樓瀑布，和世界級音樂噴泉:杜拜水舞的全世界最大的杜拜購物中心！**
 
