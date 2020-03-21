@@ -16,7 +16,7 @@
 
 ![](https://live.staticflickr.com/65535/49679737226_8587bcf57c.jpg)
 
-**杜拜購物中心的佔地之廣，我們親身體驗到，當我們有一天包車要從杜拜(Dubai)前往另一大城市阿布達比（Abu Dhabi）時，車子開了近十分鐘之久，已經走了好一段路，我們仍在杜拜購物中心外的某一面，可見得它的總佔地面積之廣大。** 當然愛好世界名牌和精品的人在裡面怎麼也逛不完，所有國際精品及精品童裝都會在這裡設旗艦店，如寶格麗（Bulgari）、卡地亞（Cartier）、蔻依法國時裝（Chloé）、代表性英國經典格紋品牌Burberry、國際精品亞曼尼（Armani）、杜嘉班納（Dolce & Gabbana）、芬迪（Fendi）、古馳（Gucci）、瑞典時裝公司海恩斯莫里斯服飾H&M）瑞典語Hennes & Mauritz AB）、Polo Ralph Lauren、法國時裝品牌迪奧Dior）法語:Christian Dior）、瑞士奢華腕錶勞力士Rolex等。
+**杜拜購物中心的佔地之廣，我們親身體驗到，當我們有一天包車要從杜拜(Dubai)前往另一大城市阿布達比（Abu Dhabi）時，車子開了近十分鐘之久，已經走了好一段路，我們仍在杜拜購物中心外的某一面，可見得它的總佔地面積之廣大。** 當然愛好世界名牌和精品的人在裡面怎麼也逛不完，所有國際精品及精品童裝都會在這裡設旗艦店，如寶格麗（Bulgari）、卡地亞（Cartier）、蔻依法國時裝（Chloé）、代表性英國經典格紋品牌Burberry、國際精品亞曼尼（Armani）、杜嘉班納（Dolce & Gabbana）、芬迪（Fendi）、古馳（Gucci）、瑞典時裝公司海恩斯莫里斯服飾H&M 瑞典語（Hennes & Mauritz AB）、Polo Ralph Lauren、法國時裝品牌迪奧（Dior）法語（Christian Dior）、瑞士奢華腕錶勞力士Rolex等。
 
 ![](https://live.staticflickr.com/65535/49679737146_ce1c027acf.jpg)
 
