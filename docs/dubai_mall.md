@@ -22,7 +22,13 @@
 
 ![](https://live.staticflickr.com/65535/49680026327_b62912238c.jpg)
 
-![](https://live.staticflickr.com/65535/49679736936_66d7ffb98e.jpg)
+![](https://live.staticflickr.com/65535/49685494752_839ae589fe.jpg)
+
+![](https://live.staticflickr.com/65535/49685494897_2ff3a0c1b7.jpg)
+![](https://live.staticflickr.com/65535/49685494837_510582f101.jpg)
+
+![](https://live.staticflickr.com/65535/49685494862_d6079796ee.jpg)
+=![](https://live.staticflickr.com/65535/49685494947_9a26f12ae1.jpg)
 
 **但我們家不是喜愛逛街或名牌的人，家裡只有我一個人最愛指認知名品牌，不過杜拜購物中心的精品童裝櫥窗，服飾細節設計之華美出眾，的確是視覺上的饗宴。當地的中東傳統服飾也十分具有阿拉伯服飾文化上的特色，多推出長罩袍類，具有當地特色的傳統服飾。**
 
