@@ -85,3 +85,7 @@
 **總而言之，如果到杜拜去，絕對不能錯過好吃，好逛，能看到三層樓高的高樓瀑布，和世界級音樂噴泉:杜拜水舞的全世界最大的杜拜購物中心！**
 
 ![](https://live.staticflickr.com/65535/49679736536_d12ca5d158.jpg)
+
+![](https://live.staticflickr.com/65535/49684704243_6b6c917971.jpg)
+
+![](https://live.staticflickr.com/65535/49685239136_355ca5f85b.jpg)
