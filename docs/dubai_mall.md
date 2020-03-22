@@ -31,10 +31,10 @@
 以2020/3/18的六次祈禱時間為例(每天的祈禱時間會隨日出時間而微調):
 * Fajr: 5:08am
 * Sunrise: 6:22am
-* Dhuhr:12:30pm
+* Dhuhr: 12:30pm
 * Asr: 3:56 pm
 * Maghrib: 6:32pm
-* Isha:7:46pm
+* Isha: 7:46pm
 
 ![](https://live.staticflickr.com/65535/49680026652_e6ce18fd6f.jpg)
 
