@@ -6,6 +6,8 @@
 
 ![](https://live.staticflickr.com/65535/49704569412_565c8caa5b.jpg)
 
+![](https://live.staticflickr.com/65535/49704444556_28b4cbe78b.jpg)
+
 **搭乘電梯只需要1分鐘左右，就可以直達位於哈里發塔124樓的觀景台。在哈里發塔這棟世界最高的摩天大樓，以360度鳥瞰的方式遠眺城市、沙漠和海洋，一望無際地飽覽杜拜的景觀，壯觀的景色令人讚嘆！除了可以在觀景台欣賞外，也可以選擇住在哈里發塔內全球第一棟的Armani Hotel、用餐或享用下午茶。**
 
 ![](https://live.staticflickr.com/65535/49703725463_08e318d2f0.jpg)
@@ -67,3 +69,5 @@
 ![](https://live.staticflickr.com/65535/49704570062_3b4fc926d3.jpg)
 
 ![](https://live.staticflickr.com/65535/49703725993_552261bd3b.jpg)
+
+![](https://live.staticflickr.com/65535/49703902793_81bdb34c4d.jpg)
