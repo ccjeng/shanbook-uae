@@ -14,7 +14,7 @@ module.exports = {
           ['index2','前言二'],
           ['dubai_fountain','杜拜水舞'],
           ['dubai_mall','杜拜購物中心'],
-          ['burj_khalifah','哈里發塔'],                   
+          ['burj_khalifah','世界第一高樓哈里發塔'],                   
           ['video','影片區'],
         ],
         nav: [
