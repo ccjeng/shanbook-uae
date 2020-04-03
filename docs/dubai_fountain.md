@@ -63,7 +63,7 @@
 <iframe src="https://drive.google.com/file/d/1JaNbz0_E-a2RvCHFzp6MpQ1Nv8hCR8Dh/preview" width="100%" height="480"></iframe>
 -->
 
-<iframe src="https://onedrive.live.com/embed?cid=A7C8B78CB7DAD5FC&resid=A7C8B78CB7DAD5FC%2110535&authkey=ADx7hx4WyDmbF38" width="320" height="180" frameborder="0" scrolling="no"></iframe>
+<iframe src="https://onedrive.live.com/embed?cid=A7C8B78CB7DAD5FC&resid=A7C8B78CB7DAD5FC%2110535&authkey=ADx7hx4WyDmbF38" width="100%" height="480" frameborder="0" scrolling="no"></iframe>
 
 [更多杜拜水舞影片](/Video.html#%E6%9D%9C%E6%8B%9C%E6%B0%B4%E8%88%9E)
 
