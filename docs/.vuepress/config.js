@@ -16,7 +16,7 @@ module.exports = {
           ['dubai_mall','杜拜購物中心'],
           ['burj_khalifah','世界第一高樓哈里發塔'],
           ['dubai_frame','杜拜相框'],
-          ['atlantis.md','# 亞特蘭提斯失落密室水族館'],                           
+          ['atlantis.md','亞特蘭提斯失落密室水族館'],                           
           ['video','影片區'],
         ],
         nav: [
