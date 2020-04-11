@@ -5,20 +5,18 @@
 ![](https://live.staticflickr.com/65535/49756714863_5de4b2795c.jpg)
 
 ![](https://live.staticflickr.com/65535/49757574892_a229dbb5c9.jpg)
-
 ![](https://live.staticflickr.com/65535/49760698137_19e14c2d7d.jpg)
 
-![](https://live.staticflickr.com/65535/49760620592_cef72a5880.jpg)
+![](https://live.staticflickr.com/65535/49760620927_85720498b8.jpg)
 
 ![](https://live.staticflickr.com/65535/49760299391_8203999af8.jpg)
 
 **亞特蘭提斯失落密室水族館以消失的亞特蘭提斯文明為主題，在參觀海洋生物的同時，讓遊客想像探索神秘的亞特蘭蒂斯遺址。失落的空間水族館有中東最大的露天海洋生物棲息地**，飼養超過65000隻水生動物，包括了食人魚、巨骨舌魚和水母等。水族館內部**營造出失落文明的神秘和幽閉感，內部幽暗空靈，彷彿無人踏足的深海世界，甚至還配有空靈迷幻的海底背景音效，主題環境的烘托得非常到位，令人覺得走入一個氛圍奇幻謎樣的古代密室中！**
 
 ![](https://live.staticflickr.com/65535/49759848703_39181259ea.jpg)
+![](https://live.staticflickr.com/65535/49757574892_a229dbb5c9.jpg)
 
 ![](https://live.staticflickr.com/65535/49759049172_30c439dfde.jpg)
-
-![](https://live.staticflickr.com/65535/49757574892_a229dbb5c9_z.jpg)
 
 ![](https://live.staticflickr.com/65535/49760317956_64bd26e499.jpg)
 
@@ -31,6 +29,7 @@
 ![](https://live.staticflickr.com/65535/49759788838_f7e2e433ac.jpg)
 
 ![](https://live.staticflickr.com/65535/49756714918_dd94f78104.jpg)
+![](https://live.staticflickr.com/65535/49760639002_ae43ce58c2.jpg)
 
 ![](https://live.staticflickr.com/65535/49759789063_73d9e58c37.jpg)
 
@@ -45,15 +44,15 @@
 ![](https://live.staticflickr.com/65535/49759789268_bd290c76cb.jpg)
 
 ![](https://live.staticflickr.com/65535/49760298761_7388e2ee1e.jpg)
+
 ![](https://live.staticflickr.com/65535/49760621272_d054eb308f.jpg)
+![](https://live.staticflickr.com/65535/49760378541_fb018c2889.jpg)
 
 亞特蘭提斯失落密室水族館和杜拜水族館（Dubai Aquarium）比較起來，**杜拜水族館的特色是有超大超高巨型水族箱，讓水族箱本身看起來跟三個電影廳的電影螢幕一樣大。就連拍照時，都得要分左中右三次拍攝，才能夠拍到杜拜水族館的完整巨型水族箱。** 特別是在過中國農曆年時，杜拜水族館內會有穿著舞獅服裝的兩名潛水員，在世界最大的水族箱（等於好幾面巨型挑高電影螢幕般大小）內表演舞獅，搭配上熱鬧的傳統敲鑼打鼓背景音效，總是會吸引大批世界各國遊客駐足欣賞，一睹過中國年的濃濃氣氛。所以**杜拜水族館的最大吸睛特別之處，在於跟三個電影廳的電影螢幕一樣大的水族箱。亞特蘭提斯失落密室水族館的特色，則是在於它的奇幻懸秘的氛圍，有幽暗的各色夢幻光影場景，去烘托各式魚群及水中生物，加上空靈迷幻的海底背景音效，使得進入亞特蘭提斯失落密室水族館有如置身異時空的非現實場景之中。** 所以這兩個杜拜的知名水族館可說是各異其趣，各自會讓人留下全然不同的深刻雋永感受與體驗！
 
 ![](https://live.staticflickr.com/65535/49760298926_a1f96eda59.jpg)
 
 ![](https://live.staticflickr.com/65535/49757574667_e975e7f459.jpg)
-
-![](https://live.staticflickr.com/65535/49760639002_ae43ce58c2.jpg)
 
 ![](https://live.staticflickr.com/65535/49760298996_44d5e7850f.jpg)
 

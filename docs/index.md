@@ -38,11 +38,11 @@
 ----
 
 1. 前言
-2. 杜拜水舞
+2. 杜拜水舞 Dubai Fountain
 3. 杜拜購物中心 Dubai Mall
-4. 哈里發塔
-5. 杜拜相框
-6. The Lost Chambers Aquarium
+4. 哈里發塔 Burj Khalifah
+5. 杜拜相框 The Dubai Frame
+6. 亞特蘭提斯失落密室水族館 The Lost Chambers Aquarium
 7. 帆船飯店
 8. 阿布達比大清真寺
 9. 阿布達比酋長皇宮
