@@ -24,6 +24,8 @@
 
 亞特蘭提斯失落密室水族館的大型水族箱前方有座椅，可以坐著像面對大型觀景螢幕一樣地欣賞大片的魚群在眼前自由自在地漫游。**在2017年，第一次去亞特蘭提斯失落密室水族館參觀時，當時大型水族箱前面，甚至有設置一些暗紅色圖騰的阿拉伯風格方型靠墊，讓遊客可以或坐或躺地，往上輕鬆優閑地觀看前方大型水族箱中的魚群自在悠游。躺著往上盡覽欣賞大面的水族箱，真是一種前所未有的水族館體驗，是我們行遍世界各洲各國的水族館中，獨一無二，無可比擬的體驗！** 但是，2020年這次再去亞特蘭提斯失落密室水族館時，可平面坐臥欣賞的靠墊區改為只有座椅區了，所以無法重溫2017年平躺著向上觀看魚群的珍稀體驗！
 
+![](https://live.staticflickr.com/65535/49760541118_3d6a241401.jpg)
+
 ![](https://live.staticflickr.com/65535/49759849463_45cb2f2105.jpg)
 
 ![](https://live.staticflickr.com/65535/49759788838_f7e2e433ac.jpg)
@@ -54,6 +56,18 @@
 
 ![](https://live.staticflickr.com/65535/49757574667_e975e7f459.jpg)
 
+![](https://live.staticflickr.com/65535/49761068026_cb5927e020.jpg)
+
 ![](https://live.staticflickr.com/65535/49760298996_44d5e7850f.jpg)
 
 ![](https://live.staticflickr.com/65535/49759770608_48d509c321.jpg)
+
+![](https://live.staticflickr.com/65535/49761396007_cb7a367c41.jpg)
+
+![](https://live.staticflickr.com/65535/49761396612_d887d61195.jpg)
+
+![](https://live.staticflickr.com/65535/49761071551_954e1798d9.jpg)
+
+![](https://live.staticflickr.com/65535/49761071706_9e9f9deb4c.jpg)
+
+![](https://live.staticflickr.com/65535/49760542263_4ee7d992c9.jpg)
