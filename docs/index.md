@@ -3,6 +3,8 @@
 ![](https://live.staticflickr.com/65535/49626209813_dc176cf043.jpg)
 ![](https://live.staticflickr.com/65535/49626727966_eaf292423f.jpg)
 
+![](https://live.staticflickr.com/65535/49760297881_04a3e02bc3.jpg)
+
 ## 前言
 
 我在2017年農曆春節期間，第一次和爸爸媽媽搭乘阿聯酋航空 (Emirates Airline) ，第一次直飛前往杜拜（Dubai）。當時**我們選擇杜拜作為自助旅行的國家選項之一的原因是：**
