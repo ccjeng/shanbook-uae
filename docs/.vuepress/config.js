@@ -5,7 +5,7 @@ module.exports = {
     repo: 'https://github.com/ccjeng/shanbook-uae',
     head: [
       ['link', { rel: 'icon', href: '/favicon.ico' }],
-      ['script', {src: '//s3-ap-northeast-1.amazonaws.com/justfont-user-script/jf-59714.js'} ]
+      ['script', {src: '//s3-ap-northeast-1.amazonaws.com/justfont-user-script/jf-59714.js'} ] 
     ],
     themeConfig: {
         sidebarDepth: 0,
@@ -18,6 +18,7 @@ module.exports = {
           ['dubai_frame','杜拜相框'],
           ['atlantis.md','亞特蘭提斯失落密室水族館'],
           ['burj_al_arab.md','帆船飯店'],
+          ['grand_mosque.md','謝赫扎耶德大清真寺'],
           ['video','影片區'],
         ],
         nav: [
