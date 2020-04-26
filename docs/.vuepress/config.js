@@ -4,8 +4,7 @@ module.exports = {
     base: '/',
     repo: 'https://github.com/ccjeng/shanbook-uae',
     head: [
-      ['link', { rel: 'icon', href: '/favicon.ico' }],
-      ['script', {src: '//s3-ap-northeast-1.amazonaws.com/justfont-user-script/jf-59714.js'} ] 
+      ['link', { rel: 'icon', href: '/favicon.ico' }]
     ],
     themeConfig: {
         sidebarDepth: 0,
