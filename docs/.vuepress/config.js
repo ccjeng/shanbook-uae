@@ -31,6 +31,7 @@ module.exports = {
       },
     plugins: [
         ['@vuepress/google-analytics', {'ga': 'UA-19743390-33'} ],
-        ['@vuepress/back-to-top']
+        ['@vuepress/back-to-top'],
+        ['img-lazy']
     ]
 }
