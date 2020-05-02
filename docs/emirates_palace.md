@@ -1,4 +1,4 @@
-# 阿布達比酋長皇宮 Emirates Palace
+# 阿布達比酋長皇宮飯店 Emirates Palace
 
 阿布達比酋長皇宮飯店（Emirates Palace）是位在阿拉伯聯合大公國（UAE）的首都，也是第二大城阿布達比的**豪華八星級飯店，建築風格帶有濃厚的阿拉伯民族色彩。阿布達比酋長皇宮飯店這間富麗堂皇的海濱飯店，位於占地85公頃的景觀花園中**，它距離阿布達比海濱購物中心（YAS Mall）和阿拉伯聯合大公國首都阿布達比的歷史地標，也是最古老的石頭建築:阿布達比豪森宫殿（Qasr al-Hosn），皆為4公里。
 
@@ -76,4 +76,5 @@
 
 ![](https://live.staticflickr.com/65535/49841256313_ddb44b7ec9.jpg)
 
+棍子舞
 <iframe width="560" height="315" src="https://www.youtube.com/embed/uaympKjdt9E" frameborder="0" allow="accelerometer; autoplay; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
