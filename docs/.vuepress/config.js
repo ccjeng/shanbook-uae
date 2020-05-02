@@ -18,7 +18,7 @@ module.exports = {
           ['atlantis.md','亞特蘭提斯失落密室水族館'],
           ['burj_al_arab.md','帆船飯店'],
           ['grand_mosque.md','謝赫扎耶德大清真寺'],
-          ['emirates_palace.md','阿布達比酋長皇宮'],
+          ['emirates_palace.md','阿布達比酋長皇宮飯店'],
           ['video','影片區'],
         ],
         nav: [
