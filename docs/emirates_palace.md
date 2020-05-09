@@ -76,6 +76,6 @@
 
 ![](https://live.staticflickr.com/65535/49841256313_ddb44b7ec9.jpg)
 
-棍子舞
+阿拉伯聯合大公國（UAE）的傳統集體舞蹈：棍子舞（Al Ayala Stick Dance）
 
 <iframe width="560" height="315" src="https://www.youtube.com/embed/uaympKjdt9E" frameborder="0" allow="accelerometer; autoplay; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>

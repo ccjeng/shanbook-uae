@@ -41,6 +41,9 @@
 
 ![](https://live.staticflickr.com/65535/49873075532_4011abea8e.jpg)
 
+![](https://live.staticflickr.com/65535/49873802148_b1210421e7_w.jpg)
+![](https://live.staticflickr.com/65535/49874641092_a39b9546d4_w.jpg)
+
 館內的平版觸控導覽機，可選擇多種語言:有阿拉伯語、英語、法語、德語、印度語、中文、日文、韓文、俄文，以及西班牙文。這裡的每一個角度都好像是藝術品一樣，令人目不暇給，是一個非常值得來的景點。**如果有到阿布達比或杜拜，一定得要來參觀，讚嘆欣賞一下，這有著天圓地方概念的驚人建築!在穹頂之下，吹著海風，看著藝術品，是一件非常美好的享受，更是一場深度的文化饗宴，超美的夕陽和周邊環繞的寬闊海景，也是一種精神上的饗宴。**
 
 ![](https://live.staticflickr.com/65535/49872763766_2b62b0bc6b_w.jpg)
@@ -66,3 +69,5 @@
 ![](https://live.staticflickr.com/65535/49874237341_db6fe00d8b.jpg)
 
 ![](https://live.staticflickr.com/65535/49873708083_ec8ca1b106.jpg)
+
+![](https://live.staticflickr.com/65535/49873799793_25e9f4e74e.jpg)
