@@ -19,6 +19,7 @@ module.exports = {
           ['burj_al_arab.md','帆船飯店'],
           ['grand_mosque.md','謝赫扎耶德大清真寺'],
           ['emirates_palace.md','阿布達比酋長皇宮飯店'],
+          ['louvre.md','阿布達比羅浮宮'],
           ['video','影片區'],
         ],
         nav: [
