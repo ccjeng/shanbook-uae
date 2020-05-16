@@ -20,6 +20,7 @@ module.exports = {
           ['grand_mosque.md','謝赫扎耶德大清真寺'],
           ['emirates_palace.md','阿布達比酋長皇宮飯店'],
           ['louvre.md','阿布達比羅浮宮'],
+          ['qasr_al_watan','阿布達比總統府'],
           ['video','影片區'],
         ],
         nav: [
