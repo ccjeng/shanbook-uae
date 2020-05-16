@@ -79,3 +79,19 @@
 ![](https://live.staticflickr.com/65535/49899455171_1fff7a9c0c_w.jpg)
 
 剛抵達時，售票處的廁所少而小，僅有一間男廁，我和爸爸在男廁沒有無障礙身障廁所可使用，是巴基斯坦裔的包車司機來協助，請其它排隊的人先不要進入，我們才得以使用廁所的!媽媽等女廁時，因為空間狹窄，排到門口處，無處可站，被後方開門的人直接打到腰好多次。**此外，我因為抵達時肚子餓又疲累的關係，又狀況連連到令家人無法專心參觀**，還好進入主宮殿內的廁所就大而華美。**在那麼辛苦繁複而波折的過程後，才飽覽和拍到這絕美脫俗的阿布達比總統府的超凡景致，怎不令人份外感動又永生難忘，並成為我們又一次克服萬難，達成目標的又一個絕佳例子呢？**
+
+![](https://so1qlg.sn.files.1drv.com/y4mpNm-ADKc-p1QLgoB7Eo9KEHwGPzJMUMHM15SR1GRT2iFRcLNkE8TdA_3dCdjed6RVs-aLCcU0Oj9JF8pRTilOfxZ2ZCcGlD11NibfbSns3NNNnszMgl79FF1QN1k8ks2-TrfXr3x4tqJJ0gHpFrsSL6e-rUb-8jLVhMKKm_YsvoPX5dqiQa_B64D_YwjP4BEYvbEa46W8f3S5EJ8wTRqCw?width=500&height=400&cropmode=none)
+
+![](https://so1slg.sn.files.1drv.com/y4me6YruPcUEhK3yeZcCxOUCus2nDyMA7X1frw8MPrl5h4Uo8mWptviqQFQeydclLmFyed6_AGzRtHA0Kfy9bW7D6HlqWL9MzbpDY9InLB7o-sCaIX04RjFgaGLDMd1fD4oHm0IAmT5Jv2LX930yT64bcfp_FPJtotc5tcOl4Porguo_hXetloLNx5kMPrxVaib4rFAbSuFwJ7z3i6LcEf4eg?width=500&height=400&cropmode=none)
+
+![](https://so1rlg.sn.files.1drv.com/y4mhizLGFYNPSdKRtfudb8nPizWZPCcrRQTx3p-0e0kOHEsLeb-kg7dTEot63g98z8AaQMyOQSj14kf0kO34VH4YzddqaaCRV8Z5RpEXZHFzmdE9buYeTtWYvpjnAXR1kYS-vVgQ7rNeleXLNHtF-vv1N9pOwprad09_oy1w5HQyrsUyyd7wWlunk2muGvWLdNrMUFnLus27vNN96ThYB-ZKw?width=500&height=400&cropmode=none)
+
+![](https://se1xlg.sn.files.1drv.com/y4mzxeji00a2mGwYjpx0wq-1soQxLwi6ZF0NvE8aslc5MT8pv98nSsKPwD9zjdksjHDr1AHuAdIZzY1MRo_p98gMqJeFP-R8MYxJDN-2ztxIZlP_KUPwNWc0sP2hYbsmsQ2XRFfMNZDC-eCA1BS2Lf_0TbjJWEf4IlIL3FsGkxOm3AwiTHFvwxEqNkP9F_aIruIlfF0lFKkRhDSpGPjG3bGNQ?width=500&height=400&cropmode=none)
+
+![](https://se1zlg.sn.files.1drv.com/y4mmO3LGwZDIy2x5S7LhsoCc10azExaoKChr2QRMw5nno0pWyFNKlaLE5NlK_byPyazuF_TAwYNlz-h7EWTXJ063VCGdoqJ5Q6e219u0KMZroPbv9k-UBWqTR-VBd5afz5mOFh6zd4xiKZnIsuVmybboceo0YjrdryXT_hvLmmjuc9qRoaI68PLJfGB-qKVHrK55iNWpRe18_h26iPeJdM5Xw?width=500&height=400&cropmode=none)
+
+![](https://se1ylg.sn.files.1drv.com/y4mv6dic4NjgPeHVyCw9M1RLoKALpcds-kKOmCy6BF8Ed3PofxHwl2EoY9Y2ZnONG9pWQ2s5guGNNCX8G3mY9G0u5t_OVQR9ALOK3x0puH3VMB8_L6v4U_-N41vIF1koYrZXz_2yY9pKpBRA4hvyRv6lH8Xo-TZ1lo7HEDDRCdHNtEV6s19LmGnhO6scVYY1rZ__cUt4Qnsg2g1xxyHW_ja8A?width=500&height=400&cropmode=none)
+
+![](https://se1wlg.sn.files.1drv.com/y4m1W4G9JGac4BMUEhP549_7B_cVO34NQD9JAPxsRifTpSFhiZj3jkYNvNCRI-p0T_K8VlyHPzM3Im7FkxrWqnQE3qfAgbFiAQTgF7i1vy1R2eeRoT2jOn7Go1Pw2iXKa2PzEZ32OMp211vPIR6Cc6PhA2FMYw7FSpz_YGgVeLq2HtCrfPMRd6pcd9OWrHuwbr-EjcJ59u86-ylGm-yTPi_Ew?width=500&height=400&cropmode=none)
+
+![](https://se1vlg.sn.files.1drv.com/y4mMjjfyFOXv2SEnDE-g93btwK0of9lL4W2EShxMYHxYU28NU5rZoGDhVvL4UTJIK0sKWJ0L4QoLnb2YX4EL6QnZHdCEVfo4Ls6MBoDhHZI7sof-WahNcFI7OahuWUA1xbD9a1S9HUAXEKuauxQD6SPmpH2s84sf3uVwSfzcojwQd1dQwFvDNnrKIP6b68wnkbbq8EMlpWymW4RLgL1FU4lvw?width=500&height=400&cropmode=none)
