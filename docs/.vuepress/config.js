@@ -21,6 +21,7 @@ module.exports = {
           ['emirates_palace.md','阿布達比酋長皇宮飯店'],
           ['louvre.md','阿布達比羅浮宮'],
           ['qasr_al_watan','阿布達比總統府'],
+          ['airport','杜拜國際機場與奇蹟花園'],
           ['video','影片區'],
         ],
         nav: [
