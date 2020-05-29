@@ -22,6 +22,7 @@ module.exports = {
           ['louvre.md','阿布達比羅浮宮'],
           ['qasr_al_watan','阿布達比總統府'],
           ['airport','杜拜國際機場與奇蹟花園'],
+          ['uae','阿拉伯聯合大公國'],
           ['video','影片區'],
         ],
         nav: [
