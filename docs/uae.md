@@ -86,3 +86,8 @@
 ![](https://live.staticflickr.com/65535/49947930323_0bd612c623.jpg)
 
 **中華民國與阿拉伯聯合大公國並沒有正式外交關係，所以我們到阿拉伯聯合大公國需要簽證**，中華民國目前在阿拉伯聯合大公國首都阿布達比設立了具大使館性質的代表機構。
+
+### 阿拉伯聯合大公國(UAE)國歌
+<iframe width="560" height="315" src="https://www.youtube.com/embed/A6YNljzz-M4" frameborder="0" allow="accelerometer; autoplay; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
+
+<iframe width="560" height="315" src="https://www.youtube.com/embed/A59le56aluA" frameborder="0" allow="accelerometer; autoplay; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
