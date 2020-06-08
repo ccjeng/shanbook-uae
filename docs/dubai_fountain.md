@@ -58,7 +58,6 @@
 
 **其實，我從小就很愛玩水，所以不管是在台灣或是在杜拜，我都是一個標準的水舞迷，會準時每場到水舞廣場報到。這是為什麼，我們2020年會選擇直接住在表演杜拜水舞的杜拜湖旁的杜拜皇宮飯店的水舞房（Palace Downtown, Dubai）。** 在戶外景觀絕佳的255水舞房裡，我甚至可以一邊側躺著休息，一邊欣賞水舞表演，而不必在每場水舞表演時，都到杜拜購物中心去萬頭鑽動地人擠人，就可以輕鬆愜意地觀賞到每一場的水舞表演。**在杜拜購物中心二樓的TGI Fridays，也是能一邊欣賞水舞，一邊享受美食的極受遊客歡迎的觀景餐廳。** 特別是TGI Fridays的戶外座位區，更是每晚座無虛席，得要早早就事前預訂，我們2020年這趟杜拜自助旅行，共去了兩次杜拜購物中心二樓的 TGI Fridays用餐和欣賞水舞兩次，**2017年到這家TGI Fridays用餐時，更曾坐過餐廳戶外極熱門搶手的的露天座位區，邊吃美食滿桌的燭光晚餐，邊欣賞好幾場聲光俱佳的杜拜水舞，那樣特殊的經歷，是令人永生深刻難忘，感動到心頭的最幸福時刻之一！**
 
-
 <iframe src="https://drive.google.com/file/d/1JaNbz0_E-a2RvCHFzp6MpQ1Nv8hCR8Dh/preview" width="100%" height="480"></iframe>
 <!--
 <iframe src="https://onedrive.live.com/embed?cid=A7C8B78CB7DAD5FC&resid=A7C8B78CB7DAD5FC%2110535&authkey=ADx7hx4WyDmbF38" width="100%" height="480" frameborder="0" scrolling="no"></iframe>

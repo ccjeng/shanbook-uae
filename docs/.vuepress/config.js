@@ -10,7 +10,7 @@ module.exports = {
         sidebarDepth: 0,
         sidebar: [
           ['/','前言'],
-          ['index2','前言二'],
+          ['index2','前言二：媽媽的話'],
           ['dubai_fountain','杜拜水舞'],
           ['dubai_mall','杜拜購物中心'],
           ['burj_khalifah','世界第一高樓哈里發塔'],
@@ -23,7 +23,8 @@ module.exports = {
           ['qasr_al_watan','阿布達比總統府'],
           ['airport','杜拜國際機場與奇蹟花園'],
           ['uae','阿拉伯聯合大公國'],
-          ['video','影片區'],
+          ['videoshan','善善的杜拜影片區'],
+          ['video','影片區']
         ],
         nav: [
           { text: '首頁', link: '/' },
